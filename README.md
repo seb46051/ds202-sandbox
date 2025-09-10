@@ -12,6 +12,8 @@ We are trying to write this together as a group
 - My school workload is really light right now.
 - Living with my friends
 - The weather has been nice so far
+- Being on a schedule
+
 
 
 
@@ -25,3 +27,5 @@ We are trying to write this together as a group
 - Iowa State basketball losing 4 of their last 6 games.
 - Having to cook for myself
 - I have to do a lot of readings for my classes
+- I have to write essays
+
