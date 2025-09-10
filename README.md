@@ -11,6 +11,7 @@ We are trying to write this together as a group
 - Winning the Cyhawk game
 - My school workload is really light right now.
 - Living with my friends
+- The weather has been nice so far
 
 
 
@@ -23,3 +24,4 @@ We are trying to write this together as a group
 - Not being able to go to the Cyhawk game in person
 - Iowa State basketball losing 4 of their last 6 games.
 - Having to cook for myself
+- I have to do a lot of readings for my classes
