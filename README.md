@@ -13,7 +13,7 @@ We are trying to write this together as a group
 - Living with my friends
 - The weather has been nice so far
 - Being on a schedule
-
+- Seeing friends
 
 
 
@@ -28,4 +28,4 @@ We are trying to write this together as a group
 - Having to cook for myself
 - I have to do a lot of readings for my classes
 - I have to write essays
-
+- Flying into school a day late
